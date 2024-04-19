@@ -1,2 +1,2 @@
 # ICS3U
-Stuff for school
+Stuff for school Im making this stuff, for school
